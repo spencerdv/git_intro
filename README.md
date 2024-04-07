@@ -1,1 +1,2 @@
 Spencer Verhagen
+verhages@oregonstate.edu
